@@ -5,16 +5,3 @@
 # Mtkul            : Pemograman Mobile
 # Dosen            : Donny Maulana, S.Kom., M.M
 
-
-
-# Install Android Studio
-# Sep\20\2025
-foto
-
-#  Membuat Akun clickup
-# Sep\21\2025
-
-# Membuat Story board
-# oct\10\2025
-foto
-
