@@ -8,5 +8,5 @@
 ## LINK CLICK-UP 
 [lihat disini](https://sharing.clickup.com/90181791702/l/h/2kzm1vyp-538/9386a6f02a16974)
 ## LINK FIGMA 
-
+[lihat disini]()
 ## LINK YOUTUBE 
