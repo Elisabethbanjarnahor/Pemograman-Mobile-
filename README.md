@@ -13,4 +13,4 @@
 [lihat disini](https://youtu.be/AchZ8sVLZcI?si=UnMUOErGoJ_2i2Te)
 
 ## LINK YOUTUBE APLIKASI
-[lihat di sini](https://youtube.com/shorts/j7lNzegr_TQ?si=-QUZGQSVVX9p6BhT)
+[lihat disini](https://youtube.com/shorts/j7lNzegr_TQ?si=-QUZGQSVVX9p6BhT)
