@@ -9,5 +9,8 @@
 [lihat disini](https://sharing.clickup.com/90181791702/l/h/2kzm1vyp-538/9386a6f02a16974)
 ## LINK FIGMA 
 [lihat disini](https://www.figma.com/design/X4foUqcH8U7QJk7OQNhtUV/Untitled?node-id=0-1&t=9dySnnwFuZxj0Drn-1)
-## LINK YOUTUBE 
-[lihat disini]()
+## LINK YOUTUBE FIGMA
+[lihat disini](https://youtu.be/AchZ8sVLZcI?si=UnMUOErGoJ_2i2Te)
+
+## LINK YOUTUBE APLIKASI
+[lihat di sini]
